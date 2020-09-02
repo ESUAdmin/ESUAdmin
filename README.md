@@ -1,16 +1,15 @@
-### Hi there 👋
+### 一般玩网废物
 
-<!--
-**ESUAdmin/ESUAdmin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+神秘地址：X江省X州市西湖区X石二路X俶苑3棟X02室
 
-Here are some ideas to get you started:
+神秘代码：110108xxxxxxxx574X
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+神秘号码：138xxxx1122
+
+神秘QQ：1749108357
+
+北京大学侯长汐恶俗学院 辱骂学工程专业在读
+
+技能：创象出道、脑电波人肉、真人快打（港澳台地区除外）
+
+不恶俗，是完完全全的好人！
