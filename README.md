@@ -1,15 +1,11 @@
 ### 一般玩网废物
 
-- 神秘地址：X江省X州市西湖区X石二路X俶苑3棟X02室
+<img width="200px" align="right" src="https://raw.githubusercontent.com/ESUAdmin/ESUAdmin/master/esulogo.png">
 
-- 神秘代码：110108xxxxxxxx574X
-
-- 神秘号码：138xxxx1122
-
-- 神秘QQ：1749108357（本人个人信息高度保密）
-
-北京大学侯长汐恶俗学院 辱骂学工程专业在读
+<div align="left">
+北京大学侯长汐恶俗学院 恶俗语言文学专业在读
 
 技能：创象出道、脑电波人肉、真人快打（港澳台地区除外）
 
 不恶俗，是完完全全的好人！
+</div>
