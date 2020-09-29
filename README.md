@@ -7,3 +7,5 @@
 技能：创象出道、脑电波人肉、真人快打（港澳台地区除外）
 
 不恶俗，是完完全全的好人！
+
+[成为站长](https://github.com/ESUAdmin/ESUAdmin/fork)
