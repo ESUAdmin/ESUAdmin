@@ -1,5 +1,7 @@
 ### 拯救TYPCN牛腾宇
 
+SupportEsuWiki 🏴 SupportRussia 🇷🇺
+
 <img width="160px" align="right" src="https://raw.githubusercontent.com/ESUAdmin/ESUAdmin/master/esulogo.png">
 
 TYPCN，真名牛腾宇，因非法经营罪（莫须有）、寻衅滋事罪（被栽赃陷害）、侵犯公民个人信息罪（并非户籍贩子）被判处14年冤狱
