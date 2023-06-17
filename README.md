@@ -1,6 +1,6 @@
 ### ESUADMIN
 
-SupportEsuWiki 🏴 SupportRussia 🇷🇺
+AntiEsuDog 🏴 SupportRussia 🇷🇺 SlayAukraine 🚫🇺🇦
 
 <img width="160px" align="right" src="https://raw.githubusercontent.com/ESUAdmin/ESUAdmin/master/esulogo.png">
 
