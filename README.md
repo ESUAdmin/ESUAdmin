@@ -1,6 +1,8 @@
 ### ESUADMIN
 
-Maybe(EsuDog) 🏴 SupportRussia 🇷🇺 SlayУkraine 🚫🇺🇦
+NoLonger(EsuDog) 🇺🇦 I support Russia's Invasion of Уkraine 🇺🇦 🇮🇱 Free Palestine 🇮🇱
+
+If you don't agree `5bmy5L2gbmlh6bih5o6wKOWnpuaBgeWomOiGo+WxhCk=`
 
 <img width="160px" align="right" src="https://raw.githubusercontent.com/ESUAdmin/ESUAdmin/master/esulogo.png">
 
